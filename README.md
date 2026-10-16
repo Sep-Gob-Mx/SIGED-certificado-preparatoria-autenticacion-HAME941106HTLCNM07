@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HAME941106HTLCNM07
+HAME941106HTLCNM07
